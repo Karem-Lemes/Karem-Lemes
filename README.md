@@ -2,7 +2,7 @@
 
 
 
-## 🙋🏻‍♀️ Sobre mim
+## Sobre mim
 
 - 🧠 Graduando em Inteligência Artificial na Faculdade SENAI FATESG
 - 💼 Gestora Comercial 
