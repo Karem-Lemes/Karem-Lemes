@@ -2,7 +2,7 @@
 
 
 
-## :bird: Sobre mim
+## :butterfly: Sobre mim
 
 - 🧠 Graduando em Inteligência Artificial na Faculdade SENAI FATESG
 - 💼 Gestora Comercial 
